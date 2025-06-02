@@ -1,1 +1,1 @@
-# amulyakompalli.github.io
+#AmulyaTheAnalyst.github.io
